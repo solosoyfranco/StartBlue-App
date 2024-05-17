@@ -18,4 +18,4 @@ The StartBlue Quote App is a powerful and intuitive tool designed exclusively fo
 ### About LS Tractor USA
 LS Tractor USA is committed to providing top-quality agricultural tractors and equipment to farmers and landowners. Our StartBlue Quote App embodies our dedication to innovation, efficiency, and customer satisfaction.
 
-*Start Blue, Stay Blue with LS Tractor USA.*****
+*****Start Blue, Stay Blue with LS Tractor USA.*****
